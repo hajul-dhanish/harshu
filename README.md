@@ -1,3 +1,0 @@
-# harshu
-
-Portfolio
